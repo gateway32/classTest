@@ -1,3 +1,3 @@
-20211234 Leo Song
+20211234 Leo Song Professor
 
 Kookmin Univ. SW
